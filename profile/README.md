@@ -29,8 +29,8 @@ To push beyond conventional AI boundaries—crafting intelligent, ethical, and s
 
 ## 🤝 Let’s Connect
 - 🌐 [Website](#) _(coming soon)_  
-- 🐦 [X / Twitter](#)  
-- 💼 [LinkedIn](#)  
+- 🐦 [X / Twitter](https://x.com/VoidLab34558)  
+- 💼 [LinkedIn](https://www.linkedin.com/in/deepvoid-lab/)  
 
 ---
 
